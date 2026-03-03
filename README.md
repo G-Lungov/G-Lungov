@@ -62,8 +62,7 @@ I started my career in IT support and infrastructure, which gave me a strong fou
 
 ## 📫 Let's Connect
 
-- LinkedIn: (add your link here)
-- Email: (add your email here)
+- LinkedIn: (https://www.linkedin.com/in/gabriel-lungov-844b22201/)
 
 ---
 
